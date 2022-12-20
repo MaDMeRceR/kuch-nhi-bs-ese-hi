@@ -1,3 +1,3 @@
 #
 
-kya h yaar kuch nhi likhna
+kya h yaar kuch nhi likhna!
